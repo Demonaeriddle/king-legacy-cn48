@@ -1,4 +1,4 @@
-#  
+#  stealth king legacy Script offers the most advanced king legacy Script, with private server access and god mode. Perfect for dominating any match.
 
 
 
